@@ -1,5 +1,5 @@
 # More Than Enough
-[watch on Youtube](https://www.youtube.com/watch?v=P7EfJRrJueY)
+[watch on youtube](https://www.youtube.com/watch?v=P7EfJRrJueY)
 
 ## Verse 1
 Maybe I'll never know the love it takes  
