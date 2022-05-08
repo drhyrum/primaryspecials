@@ -11,7 +11,7 @@ Joseph was a prophet--had a fancy coat.
 His brothers tried to kill him--faked it with a goat.  
 
 When he got to Egypt, he helped them prepare.  
-<br/>Even in his trials, God was always there.  
+Even in his trials, God was always there.  
 
 ### Moses
 ### Samuel
