@@ -2,7 +2,8 @@
 
 # Lyrics
 
-1. Maybe I'll never know the love it takes
+## Verse 1
+Maybe I'll never know the love it takes
 To make me a happy home that's warm and safe
 And maybe I'll never see how you pray for my every need
 And wonder what more you could do for me
@@ -14,7 +15,8 @@ You give me a hug, maybe two
 And you say, "I love you"
 Then I think you're *doing* enough
 
-2. Maybe you wonder if you're teaching me
+## Verse 2
+Maybe you wonder if you're teaching me
 Every good thing that I can someday be
 But all that I know of faith
 And of kindness and love and strength
@@ -27,7 +29,8 @@ You give me a hug, maybe two
 And you say, "I love you"
 Then I think you're *doing* enough
 
-3. Someday, I'll have a home, a family
+## Verse 3
+Someday, I'll have a home, a family
 And I'll love them just as much as you love me
 Then maybe you'll finally see
 You have given enough for me
@@ -40,4 +43,5 @@ You give me a hug, maybe two
 And you say, "I love you"
 Then I think you're *more than* enough
 
+## Ending
 And I'm blessed every step by your love
