@@ -2,6 +2,7 @@
 - [More Than Enough (Mother's Day)](songs/more_than_enough.html)
 - [Follow The Prophet (additional verse)](songs/follow_the_prophet.html)
 - [I Will Walk With Jesus](songs/i_will_walk_with_jesus.html)
+- [The Twelve and the First Presidency](songs/the_twelve_and_the_first_presidency.html)
 
 # Other Songs
 - [Thankful (Thanksgiving)](songs/thankful.html)
