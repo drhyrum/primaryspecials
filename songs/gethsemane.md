@@ -7,7 +7,7 @@ His steps were heavy and slow.
 Love and a prayer took Him there  
 To the place only He could go.  
 
-Gethsemane. Jesus loves me, 
+Gethsemane. Jesus loves me,  
 So He went willingly to Gethsemane.  
 
 ## Verse 2
