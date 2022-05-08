@@ -1,0 +1,35 @@
+# I Will Walk With Jesus
+[watch on churchofjesuschrist.org](https://www.churchofjesuschrist.org/media/video/2019-11-0205-i-will-walk-with-jesus-sing-along?lang=eng)
+
+## Verse 1
+Jesus walked in wisdom; Jesus grew in truth.  
+He showed love to God and man while in His youth.  
+Jesus wants to guide me. Jesus shows the way,  
+Calling me to come and walk with Him each day.  
+
+As I walk with Jesus to my home above,  
+He will bless me with His Spirit and fill me with His love,  
+Change my heart forever and help me clearly see.  
+I will walk with Jesus, and He will walk with me.  
+
+## Verse 2
+I can grow like Jesus. I will try each day—  
+Promising to walk His path and there to stay.  
+Standing by my Savior, safe within His care,  
+Step by step I’ll follow, and His love I’ll share.  
+
+As I walk with Jesus to my home above,  
+He will bless me with His Spirit and fill me with His love,  
+Change my heart forever and help me clearly see.  
+I will walk with Jesus, and He will walk with me.  
+
+## Verse 3
+I will trust in Jesus. I will hear His call.  
+He will never leave me, even when I fall.  
+Jesus gives me power, lifts and comforts me,  
+Helping me to live and grow eternally.  
+
+As I walk with Jesus to my home above,  
+He will bless me with His Spirit and fill me with His love,  
+Change my heart forever and help me clearly see.  
+I will walk with Jesus, and He will walk with me.  
