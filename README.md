@@ -1,6 +1,6 @@
 # This Year
-- [More Than Enough](songs/more_than_enough.html)
-- [Follow The Prophet](songs/follow_the_prophet.html)
+- [More Than Enough (Mother's Day)](songs/more_than_enough.html)
+- [Follow The Prophet (additional verse)](songs/follow_the_prophet.html)
 - [I Will Walk With Jesus](songs/i_will_walk_with_jesus.html)
 
 # Other Songs
