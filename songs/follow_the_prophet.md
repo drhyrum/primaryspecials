@@ -1,4 +1,4 @@
-# Lyrics
+# Follow The Prophet
 [Children Songbook Lyrics](https://www.churchofjesuschrist.org/music/library/childrens-songbook/follow-the-prophet?lang=eng)
 
 ### Adam
