@@ -6,7 +6,7 @@
 ### Noah
 ### Abraham
 
-### (new) Joseph -- by Nathan Mills and Bishop Mills
+### (new) Joseph -- by N. Mills
 Joseph was a prophet--had a fancy coat.  
 His brothers tried to kill him--faked it with a goat.  
 
