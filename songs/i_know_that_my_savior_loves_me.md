@@ -1,4 +1,5 @@
 # I Know That My Savior Loves Me
+[watch on youtube](https://www.youtube.com/watch?v=mrE_ZhrPSRU)
 
 ## Verse 1
 A long time ago in a beautiful place, Children were gathered 'round Jesus.  
