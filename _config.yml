@@ -1,3 +1,6 @@
 theme: jekyll-theme-slate
 title: 'Primary Specials'
 subtitle: 'Quick reference for teachers'
+
+github:
+  is_project_page: false
