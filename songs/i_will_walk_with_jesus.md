@@ -1,5 +1,9 @@
 # I Will Walk With Jesus
 [watch on churchofjesuschrist.org](https://www.churchofjesuschrist.org/media/video/2019-11-0205-i-will-walk-with-jesus-sing-along?lang=eng)
+[English sheet music](https://media.ldscdn.org/pdf/music/additional-songs-for-children/english/2019-01-0110-i-will-walk-with-jesus-eng.pdf)
+[Ukrainian sheet music](https://media.ldscdn.org/pdf/music/additional-songs-for-children/ukrainian/2019-01-0110-i-will-walk-with-jesus-ukr.pdf)
+[Russian sheet music](https://media.ldscdn.org/pdf/music/additional-songs-for-children/russian/2019-01-0110-i-will-walk-with-jesus-rus.pdf)
+
 
 ## Verse 1
 Jesus walked in wisdom; Jesus grew in truth.  
