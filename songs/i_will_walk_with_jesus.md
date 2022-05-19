@@ -33,3 +33,23 @@ As I walk with Jesus to my home above,
 He will bless me with His Spirit and fill me with His love,  
 Change my heart forever and help me clearly see.  
 I will walk with Jesus, and He will walk with me.  
+
+## Chorus (_latinized Ukrainian_)
+eTee-moo Ya'z e-Soo-sum
+vDeem na Ne-be-sakh
+Du-khom vin bla-ho-slow-Vlya-ye
+-  Mi ji-Tyev-ee shlyakh
+Vir-no Sert-sem Choo-ti
+Tee meh-neh na-av-chee.
+eTee-moo Ya'z e-Soo-sum,
+Vin shlyakh me na-zav-jdee.
+
+## Chorus (_latinized Russian_)
+vmm-Yes-tye see e-Soo-sum
+Ya ver-Noos du-Moy.
+On bla-go-slow-Veet lyu-Bov-you
+E Dukh po-Shlyot mnye svoi.
+On na-Vye-kee Serd-tse
+eaves Glyad ease-Myen-it moi.
+Ya pie-doo see-Soo-sum.
+E own pie-dyote som-noy.
