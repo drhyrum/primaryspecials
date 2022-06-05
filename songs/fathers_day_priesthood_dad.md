@@ -18,6 +18,6 @@ I know he loves me, too.
 ## Sacrament presentation
 To the piano playing "My Dad", a senior primary child reads:
 
-Parents have a sacred duty to rear their children in love and righteousness, to provide for their physical and spiritual needs, and to teach them to love and serve one another, observe the commandments of God, and be law-abiding citizens wherever they live. 
+_Parents have a sacred duty to rear their children in love and righteousness, to provide for their physical and spiritual needs, and to teach them to love and serve one another, observe the commandments of God, and be law-abiding citizens wherever they live._
 
-By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families.
+_By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families._
