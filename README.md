@@ -1,4 +1,5 @@
 # Primary Specials
+- [Father's Day -- Priesthood Dad](songs/fathers_day_priesthood_dad.html)
 - [Follow The Prophet (additional verse)](songs/follow_the_prophet.html)
 - [I Know That My Savior Loves Me](songs/i_know_that_my_savior_loves_me.html) 
 - [I Will Walk With Jesus](songs/i_will_walk_with_jesus.html)
