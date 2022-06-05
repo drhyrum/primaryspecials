@@ -1,6 +1,6 @@
 # Father Day -- Priesthood Dad
-_to the tune of (The Priesthood is Restored)[https://www.churchofjesuschrist.org/music/library/childrens-songbook/the-priesthood-is-restored?lang=eng]_
-_words taken with slight modification from (My Dad)[https://www.churchofjesuschrist.org/music/library/childrens-songbook/my-dad?lang=eng]
+_to the tune of [The Priesthood is Restored](https://www.churchofjesuschrist.org/music/library/childrens-songbook/the-priesthood-is-restored?lang=eng)   
+words taken with slight modification from [My Dad](https://www.churchofjesuschrist.org/music/library/childrens-songbook/my-dad?lang=eng)_   
 
 ## Verse 1
 My dad's my favorite pal.  
