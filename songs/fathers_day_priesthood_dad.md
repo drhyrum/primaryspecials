@@ -10,7 +10,7 @@ Like him in every way.
 
 ## Verse 2
 He teaches honesty.  
-Is best in all I do.
+Is best in all I do.  
 I'm very glad that he's my dad.  
 I know he loves me, too.  
 
